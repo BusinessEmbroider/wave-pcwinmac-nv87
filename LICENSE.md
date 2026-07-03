@@ -1,4 +1,4 @@
-# 
+# Seguro Wave herramientas para Mac OS | Oficial Wave herramientas para PC Windows. Con actualizaciones en tiempo real y firmas digitales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
